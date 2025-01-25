@@ -1,0 +1,8 @@
+https://www.alibaba.com/product-detail/1-2-4-6-8-16_1600931400349.html?spm=a2700.galleryofferlist.wending_right.i6.43de13a0KrAx6g (releu)
+https://www.alibaba.com/product-detail/Neutral-LOGO-ATMEGA328P-ATmega16U2-Development-Board_1600910182419.html?spm=a2700.galleryofferlist.topad_classic.d_title.4d6213a0urGWdi (Arduino Uno R3)
+https://www.alibaba.com/product-detail/Factory-Price-12V-3A-Power-Adapter_1601336243093.html?spm=a2700.galleryofferlist.p_offer.d_title.6fc813a0ukMcpH&s=p (AC Power 12V 3A)
+https://www.alibaba.com/product-detail/I2C-Interface-Bi-Directional-Current-Power_60736725831.html?spm=a2700.galleryofferlist.normal_offer.d_title.d24513a06EQwej (INA219)
+https://bit.ly/4hpebud (usb panel)
+https://www.alibaba.com/product-detail/Small-Mini-Bouton-Poussoir-Waterproof-Button_1600637322897.html?spm=a2700.galleryofferlist.p_offer.d_image.576313a0DTwCJx&s=p (buton)
+https://www.alibaba.com/product-detail/Custom-Red-Amber-Cyan-Green-Round_60815973833.html?spm=a2700.galleryofferlist.wending_right.i8.7b4f13a0rVd9cD (diod)
+https://www.alibaba.com/product-detail/Factory-Price-Copper-Conductor-PVC-Insulated_1601274309012.html?spm=a2700.details.you_may_like.3.72123fa634lMFi (cabluri)
